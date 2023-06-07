@@ -1,2 +1,0 @@
-# selmysolis.github.io
-Tarea
